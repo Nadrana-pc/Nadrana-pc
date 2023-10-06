@@ -28,7 +28,6 @@
 
 ### Let's Connect
 
-📫 Feel free to reach out to me for collaboration, questions, or just a friendly chat:
 
 - 📧 Email: [nadranaaboobacker@email.com](nadranaaboobacker:your@email.com)
 - 💬 LinkedIn: [linkedin.com/in/nadrana-aboobacker-pc-31611a227](https://www.linkedin.com/in/nadrana-aboobacker-pc-31611a227)
